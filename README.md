@@ -1,3 +1,3 @@
 # Hello my friend
 
-![Foto in vk](https://vk.com/id245150403?z=photo245150403_457239359%2Fphotos245150403)
+![Надеюсь вам понравится ](https://bipbap.ru/wp-content/uploads/2021/09/ed7gsse8ccki-1.jpg):
